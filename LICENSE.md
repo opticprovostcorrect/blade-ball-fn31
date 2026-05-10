@@ -1,4 +1,4 @@
-
+blade ball exclusive Script is the best blade ball Script, featuring esp and silent aim. Safe and powerful for all your needs.
 
 
 
